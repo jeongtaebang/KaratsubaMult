@@ -1,1 +1,1 @@
-forgot to add a readme
+willing to reinstall
